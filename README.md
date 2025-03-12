@@ -22,7 +22,7 @@ Here are some of the languages, frameworks, and tools I work with:
 
 ## 🔗 Connect with me
 
-- [LinkedIn](https://www.linkedin.com/in/aneesh-bharadwaj-k-s-b32b32349/))
+- [LinkedIn](https://www.linkedin.com/in/aneesh-bharadwaj-k-s-b32b32349/)
 - [Email](aneeshpesaiml2005@gmail.com)
 
 Thanks for visiting my profile! 🚀
